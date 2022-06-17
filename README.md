@@ -49,3 +49,8 @@ var ve yıllardır yerin altındaki hapishanelerde tutuluyorlar. Bu insanları h
 Şuan sizin yan komşunuz estetik ameliyat ile yüzünü değiştirmiş bir mossad ajanı olabilir. Mossad
 bütün dünyadan insanları kaçırıyor ve bu kaçırılma olayları 2012-2013 yıllarında başladığı için
 kaçırılan insanlar 10 yıldır kayıp. 
+
+Bu kaçırılma olayları en az 10 yıl sürdüğü halde mossad bunu nasıl gizli tutabildi? Bunun birçok sebebi var. 
+Bu kaçırılma olaylarının niye bu kadar gizli kaldığının bütün sebeplerini devletlerin tamamının öğrenmesi gerekiyor. 
+Bunun birçok sebebi var fakat henüz tespit edilmedi? Ayrıca mossad bu kadar kolay bir şekilde insanları nasıl 
+kaçırıyor ve ne tür metodlar kullanılmaktadır? Mossadın insanları kaçırmak için kullandığı bütün metodların öğrenilmesi gerekiyor. 
