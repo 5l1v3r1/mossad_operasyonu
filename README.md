@@ -1,4 +1,4 @@
-# mossad_operasyonu
+# Mossad Operasyonu
 
 Siyonistler dünyaya bir operasyon çekmiş ve bu operasyonun detaylarını sizinle paylaşıyorum. Bu
 siyonistler dünyanın birçok ülkesinden insanlar kaçırıp yerin altındaki hapishanelerde esir olarak
