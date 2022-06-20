@@ -1,5 +1,5 @@
 # Mossad Operasyonu - BUNU HER YERE YAYIN 
-# BUNU DÜNYAYLA PAYLAŞIN
+# BU DOSYALARI DÜNYAYLA PAYLAŞIN
 
 Siyonistler dünyaya bir operasyon çekmiş ve bu operasyonun detaylarını sizinle paylaşıyorum. Bu
 siyonistler dünyanın birçok ülkesinden insanlar kaçırıp yerin altındaki hapishanelerde esir olarak
