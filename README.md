@@ -55,3 +55,5 @@ Bu kaçırılma olayları en az 10 yıl sürdüğü halde mossad bunu nasıl giz
 Bu kaçırılma olaylarının niye bu kadar gizli kaldığının bütün sebeplerini devletlerin tamamının öğrenmesi gerekiyor. 
 Bunun birçok sebebi var fakat henüz tespit edilmedi? Ayrıca mossad bu kadar kolay bir şekilde insanları nasıl 
 kaçırıyor ve ne tür metodlar kullanılmaktadır? Mossadın insanları kaçırmak için kullandığı bütün metodların öğrenilmesi gerekiyor. 
+
+# mossad ile ilgili herkes elindeki herşeyi dünyayla paylaşsın gitsin. Bu iş böyle çözülür. Dünya herşeyi bilsin. Yahudiler ve İsrailoğulları insan mahluku için bir tehdittir. Bu yüzden olan biten herşeyi dünyayla paylaşın. Korkaklıkta ayıp ilerlemekte şeref vardır. Yayınlayın bütün mossad ile ilgili dosyaları.
