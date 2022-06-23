@@ -58,7 +58,9 @@ Mossadda karşı çıkmış ve mossadın yaptığı bu zülme karşı çıktıkl
 bu insanları kaçırıp hapishanelerine götürmüş insanlardır. Hapishanelerden çıkartılıp
 Mossad tarafından kaçırılan insanlar mossad terörünü desteklemeyen insanlardır. 
 
-Kaçırılan herkesi en az 10 yıldır Hz. Mehdi a.s kuruyor. 
+Kaçırılan herkesi en az 10 yıldır Hz. Mehdi a.s kuruyor. Bu en az 10 yıldır hep böyle. 
+Mossad tarafından kaçırılan dünyadaki herkes Hz. Mehdi a.s kuruması altındalar ve hepsinin dokunmazlığı var. 
+
 Bunu araştırırsanız devasa kanıtlar bulacaksınız. Hz. Mehdi a.s ışık gibidir ve parlıyor. 
 Bu kaçırılma olayları en az 10 yıl sürdüğü halde mossad bunu nasıl gizli tutabildi? Bunun birçok sebebi var. 
 Bu kaçırılma olaylarının niye bu kadar gizli kaldığının bütün sebeplerini devletlerin tamamının öğrenmesi gerekiyor. 
