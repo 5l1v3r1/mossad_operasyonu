@@ -16,8 +16,8 @@ Azerbaycan, Irak, İran, Suudi Arabistan ve NATO ya bağlı ülkeler de olmakla 
 devlet başkanlarını, devletlerin içindeki diğer kurum ve makamlara sahip insanları kaçırmış son
 olarak devletlerin sivil halklarını kaçırmaya başlamışlardır. Bu operasyon israil derin devletinin
 dünyaya çektiği bir operasyondur. Şuanda bütün dünyada bu kaçırılma olayları yaşanmaktadır.
-Birçok Afrika ülkeleri, Arap Ülkeleri ve NATO ya bağlı devletler siyonistler tarafından
-yönetilmektedir. Şuan bütün ülkeler İsrail devleti tarafından yönetilmektedir ve bütün ülkelerin
+Bütün Afrika ülkeleri, Arap Ülkeleri ve NATO ya bağlı devletlerin tamamı ve geriye kalan dünyadaki bütün devletler işgal altında olup
+siyonistler tarafından yönetilmektedir. Şuan bütün ülkeler İsrail devleti tarafından yönetilmektedir ve bütün ülkelerin
 devlet başkanlarını israil kaçırmış olup şuan bu devletleri yöneten estetik ameliyat ile yüzleri kaçırdıkları
 devletlerin başkanlarına benzetilen Mossad ajanlarıdır. Her ülke kendi devletinde kaçırılan
 insanların olduğu yeraltı hapishaneleri araması gerekiyor çünkü bu örgüt sivil ve kamu kurumlarını
