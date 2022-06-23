@@ -51,6 +51,13 @@ var ve yıllardır yerin altındaki hapishanelerde tutuluyorlar. Bu insanları h
 bütün dünyadan insanları kaçırıyor ve bu kaçırılma olayları 2012-2013 yıllarında başladığı için
 kaçırılan insanlar 10 yıldır kayıp. 
 
+Mossad hapishanelerden insanları çıkartıp onların beynini yıkayıp kendileri için kullanmaktadır. 
+Bu hapishanelerden çıkarılan insanlar aynı zamanda mossad tarafından kaçırılıp yeraltı hapishanelerine
+götürülmüşlerdir. Hapishanelerden çıkartılıp mossadın hapishanelerine kaçırılan insanların hepsi
+Mossadda karşı çıkmış ve mossadın yaptığı bu zülme karşı çıktıkları için mossad 
+bu insanları kaçırıp hapishanelerine götürmüş insanlardır. Hapishanelerden çıkartılıp
+Mossad tarafından kaçırılan insanlar mossad terörünü desteklemeyen insanlardır. 
+
 Bu kaçırılma olayları en az 10 yıl sürdüğü halde mossad bunu nasıl gizli tutabildi? Bunun birçok sebebi var. 
 Bu kaçırılma olaylarının niye bu kadar gizli kaldığının bütün sebeplerini devletlerin tamamının öğrenmesi gerekiyor. 
 Bunun birçok sebebi var fakat henüz tespit edilmedi? Ayrıca mossad bu kadar kolay bir şekilde insanları nasıl 
