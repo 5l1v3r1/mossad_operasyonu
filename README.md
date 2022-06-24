@@ -59,7 +59,7 @@ bu insanları kaçırıp hapishanelerine götürmüş insanlardır. Hapishaneler
 Mossad tarafından kaçırılan insanlar mossad terörünü desteklemeyen insanlardır. 
 
 Kaçırılan herkesi en az 10 yıldır Hz. Mehdi a.s kuruyor. Bu en az 10 yıldır hep böyle. 
-Mossad tarafından kaçırılan dünyadaki herkes Hz. Mehdi a.s kuruması altındalar ve hepsinin dokunmazlığı var. 
+Mossad tarafından kaçırılan dünyadaki herkes(16.5 milyon civarında insan) Hz. Mehdi a.s kuruması altındalar ve hepsinin dokunmazlığı var. 
 
 Bunu araştırırsanız devasa kanıtlar bulacaksınız. Hz. Mehdi a.s ışık gibidir ve parlıyor. 
 Bu kaçırılma olayları en az 10 yıl sürdüğü halde mossad bunu nasıl gizli tutabildi? Bunun birçok sebebi var. 
