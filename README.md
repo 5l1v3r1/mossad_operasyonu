@@ -63,6 +63,9 @@ Mossad tarafından kaçırılan dünyadaki herkes(16.5 milyon civarında insan) 
 
 Bunu araştırırsanız devasa kanıtlar bulacaksınız. Hz. Mehdi a.s ışık gibidir ve parlıyor. 
 Bu kaçırılma olayları en az 10 yıl sürdüğü halde mossad bunu nasıl gizli tutabildi? Bunun birçok sebebi var. 
+Bu sebeplerden biri de mossad Cinleri gönderip kaçırılacak kişiyi doğruluk serumları gibi maddeleri mossadın Cinleri 
+kaçırılacak kişiye koklayıp kişi kendinden geçince mossad o bölgeye gidip ilaçların etkisinde olan kişiyi 
+yeraltı hapishanelerine kaçırmaktalar. Bu sadece mossadın insanları kaçırmak için kullandığı metodlardan 1 tanesidir. 
 Bu kaçırılma olaylarının niye bu kadar gizli kaldığının bütün sebeplerini devletlerin tamamının öğrenmesi gerekiyor. 
 Bunun birçok sebebi var fakat henüz tespit edilmedi? Ayrıca mossad bu kadar kolay bir şekilde insanları nasıl 
 kaçırıyor ve ne tür metodlar kullanılmaktadır? Mossadın insanları kaçırmak için kullandığı bütün metodların öğrenilmesi gerekiyor. 
